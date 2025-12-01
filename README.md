@@ -1,1 +1,1 @@
-aku ga tau mau nulis apa soalnya ngaceng
+ternyata ini fungsi nya branch ngaceng
